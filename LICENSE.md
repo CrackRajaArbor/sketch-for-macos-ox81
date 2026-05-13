@@ -1,4 +1,4 @@
-# 
+# professional Script for Sketch for macOS - collaboration and blend modes offers the most advanced Sketch for macOS script, with collaboration and blend modes. Ideal for
 
 
 
